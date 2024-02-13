@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jayatisharma03
 - 👀 I’m interested in data, economics and policy
-- 📫 How to reach me @jayatisharmaa on X
+- 📫 You can reach out to me on X @jayatisharmaa
 - 😄 Pronouns: she/her
 
 <!---
